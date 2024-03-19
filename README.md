@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that I can be helpful to you and vice-versa.
 - 📫 Contact me : pratikkumarrathore999@gmail.com
 - 😄 Pronouns: 
-- ⚡ Fun fact: Luck is delusion .... being unlucky make you grow even greater.
+- ⚡ Fun fact: Luck is a delusion .... being unlucky make you grow even greater.
 
 <!---
 mark-pratik/mark-pratik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
